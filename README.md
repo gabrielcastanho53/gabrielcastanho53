@@ -31,7 +31,7 @@
 ### 📫 Onde me encontrar
 
 - GitHub: [@gabrielcastanho53](https://github.com/gabrielcastanho53)
-- LinkedIn: [](https://linkedin.com/in/gabriel-castanho-66a1bb289)
+- LinkedIn: [Gabriel Castanho](https://linkedin.com/in/gabriel-castanho-66a1bb289)
 
 ---
 
